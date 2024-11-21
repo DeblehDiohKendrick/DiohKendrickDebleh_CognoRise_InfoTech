@@ -1,0 +1,2 @@
+# DiohKendrickDebleh_CognoRise_InfoTech
+INTERNSHIP TASKS
